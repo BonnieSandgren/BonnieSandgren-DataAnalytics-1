@@ -12,3 +12,8 @@ Linked-In resources
 
 (https://www.linkedin.com/in/dustinschimek/)
 
+
+
+(https://www.udemy.com/topic/data-analysis/)
+
+
