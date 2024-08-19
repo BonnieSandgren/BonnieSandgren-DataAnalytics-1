@@ -4,6 +4,9 @@
 
 [https://www.youtube.com/@AlexTheAnalyst]
 
+(https://www.youtube.com/watch?v=mJ-qvsxPHpY)
+
+
 
 
 Linked-In resources
