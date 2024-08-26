@@ -15,6 +15,10 @@ Linked-In resources
 
 (https://www.linkedin.com/in/dustinschimek/)
 
+(https://www.linkedin.com/in/alex-freberg/)
+
+
+
 
 
 (https://www.udemy.com/topic/data-analysis/)
